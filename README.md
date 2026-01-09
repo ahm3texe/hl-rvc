@@ -7,5 +7,3 @@ https://www.youtube.com/watch?v=zQ1p48jQczU
 
 ## Proje Yapımcıları:
 - [ahm3texe](https://steamcommunity.com/id/ahm3texe/)
-- [b0ntur](https://steamcommunity.com/id/bontur/)
-- [kaan36875](https://steamcommunity.com/id/_kaan000/)
